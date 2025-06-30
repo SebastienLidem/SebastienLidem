@@ -78,7 +78,6 @@ Mon but ? Transmettre la passion du numérique et former des développeurs prêt
 
 📞 06.88.92.04.08  
 📧 seb.faure@gmail.com  
-📍 2 place du Conflent, 66200 Corneilla del Vercol  
 
 ---
 
