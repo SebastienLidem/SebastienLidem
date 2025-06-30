@@ -78,7 +78,6 @@ My mission? Share my passion for tech and help shape the developers of tomorrow!
 
 📞 +33 6 88 92 04 08  
 📧 seb.faure@gmail.com  
-📍 2 place du Conflent, 66200 Corneilla del Vercol, France  
 
 ---
 
